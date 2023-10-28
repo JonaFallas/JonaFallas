@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Jonathan
+- 👀 I’m interested in data analysis projects
+- 📫 How to reach me:  www.linkedin.com/in/jonathanfallas
